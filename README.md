@@ -1,7 +1,4 @@
 # Meraki Garden
-
-
- [[Meraki]]
  
 
 
