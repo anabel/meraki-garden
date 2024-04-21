@@ -4,7 +4,7 @@ tags:
   - meta/collection
 date: 2024-04-21
 ---
-
+# Planes con Enara
 
 * [ ] Cat café https://elsalondemicasa.com/el-cat-cafe/
 *  [x] Roqueland https://roqueland.com/
@@ -37,8 +37,8 @@ Navidad
 - [ ] Museo de la ciencia (mas adelante)
 - [ ] Jardin botanico de Santa Catalina (alaba), tiene un mariposario
 - [ ] Sputnik Berango, escalada en familia (https://sputnikclimbing.com/rocodromo-bizkaia/berango/mi-primer-dia/)
-- [ ] Bilboats (https://www.reservaonline.support/bilboats/index.html)
-- [ ] Cabarceno - Semana Santa¿? (https://parquedecabarceno.com/)
+- [ ] Bilboats https://www.reservaonline.support/bilboats/index.html
+- [ ] Cabarceno https://parquedecabarceno.com/
 - [x] Acuario (https://aquariumss.com/)
 - [x] Parque de bolas de ikea (es más para mayores)
 - [x] Artea tren y castillo
