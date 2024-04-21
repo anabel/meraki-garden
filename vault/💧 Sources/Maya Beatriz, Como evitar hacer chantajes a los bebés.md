@@ -1,0 +1,22 @@
+---
+tags: on/parenting sources/instagram
+---
+# Como evitar hacer chantajes a los bebés
+
+![[C65C545692BA4C2097009E8C69C764D7.jpeg]]
+
+![[F82A7BA3D3F14E11990C4CD1B3A35407.jpeg]]
+
+![[865F631A1BDA46AFAAA562326641EA43.jpeg]]
+
+![[4F1DB1E5DC8E4B719B25B39580F788BA.jpeg]]
+
+![[0108E32E96114074A34A88FD496639E2.jpeg]]
+
+![[DDC6FFD37F9C47E8B9CA90FAE8906E9F.jpeg]]
+
+![[C16759E500624F519CD1C50772F42E8C.jpeg]]
+
+---
+**Metadata**
+- Creation Date: 2021-05-10 20:49:53+02:00 (Europe/Madrid)

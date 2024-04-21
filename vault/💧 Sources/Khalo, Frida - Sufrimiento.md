@@ -1,0 +1,1 @@
+Amurallar el propio sufrimiento es arriesgarte a que te devore por desde el interior.

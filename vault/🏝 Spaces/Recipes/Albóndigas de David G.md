@@ -1,0 +1,1 @@
+De la forma más simple que pude, rehogué media cebolla picada y unos pimientos verdes, lo junté con salsa de tomate estilo casero de bote, lo pase todo por la batidora y luego ya junto con las albóndigas unos minutos.
