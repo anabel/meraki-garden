@@ -10,4 +10,4 @@ Está usando la talla 30(max 19,6) de be lenka desde hace meses, le quedaría un
 
 19 + 1,2 = 20,2
 
-Talla 31 de be lenka para primavera (20,2)
+Talla 31 de be lenka para primavera? (20,2)
