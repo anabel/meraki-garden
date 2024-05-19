@@ -16,5 +16,5 @@ Corté estos lazos para:
 * Protegerme
 * Para dejar de vivir con miedo a mi misma
 * Para dejar de vivir con culpa
-* Para dejar de consumirme en la rabia ante tanta injusticia
+* Para dejar de consumirme en mi rabia ante tanta injusticia
 * Para darle la oportunidad a mi hija de sentirse segura en todos los ámbitos de su vida
